@@ -6,10 +6,6 @@
 Telegram: https://t.me/dujiaoka
 关注Telegram官方频道：https://t.me/dujiaoshuka (系统更新通知，bug更新，重大事件推送)
 
-🔥推荐服务器
-（美国免备案vps，配置2核2G仅需20.98$≈145RMB一年/支持支付宝付款）👉🏻点我直达
-（美国到中国大陆最快的vps， CN2GIA优化网络）👉🏻点我直达
-界面尝鲜
 
 
 【hyper模板】
